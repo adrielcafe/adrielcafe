@@ -1,1 +1,1 @@
-![Android](https://media.giphy.com/media/llarwdtFqG63IlqUR1/giphy.gif)
+![Android](https://media.giphy.com/media/f6Q1EjYSrpnxwQsX0b/giphy.gif)
